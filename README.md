@@ -34,5 +34,5 @@ Estou sempre aberto a colaborações e feedback. Se você tiver sugestões ou qu
 - **Site:** Gr!zzy
 - **LinkedIn:** [João Pedro](https://www.linkedin.com/in/jo%C3%A3o-pedro-78307024b/)
 - **WhatsApp:** [(41) 99618-2179](https://wa.me/5541996182179)
-- **Email:** [joao04pedro2006@gmail.com]
+- **Email:** joao04pedro2006@gmail.com
 
